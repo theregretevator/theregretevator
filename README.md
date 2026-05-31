@@ -5,3 +5,6 @@ my alters are NOT their source. i will actually find you if you try to call them
 hosts are derek & avery
 </br>
 frequent fronters are sebastian & 46
+</br>
+</br>
+wip system rentry for headmates
